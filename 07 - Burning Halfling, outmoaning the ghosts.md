@@ -1,0 +1,46 @@
+
+We descend to the basement. At the bottom of the square spiral staircase, we nearly crash into an **invisible wall**. We see the basement through it. Cormul goes on about Wobble having a heart, right next to the stomach. Krozzot is doubtful. The wall is smooth, no cracks, no bumps. Cormul shoots it with his crossbow, the bolt gets stuck. He yanks the bolt free, but there is no damage from it. I grumble it must be magic. Krozzot thinks on it. Sevaris casts **Detect Magic**, predictably detects magic, the spell doesn't do anything else.
+
+I discuss the magic of being rat with Cormul. He is not convinced. I explain the absolute beauty of having **whiskers**. "Sounds like eyes with extra steps," he says. Yes! It's great! Krozzot says the wall is a **ward** powered by something, or someone, likely nearby. To keep something in, or out. My rat eyes see nothing precious, no cheese. Also nothing that glows or looks suspicious. Whiskers droop. Krozzot tries to break it with physical strength. He thinks it could be possible, but has no clue how long it might take. All depends on the **strength** of who is maintaining the barrier. We spend a minute banging on it with cantrips and Wobble's strength, to no avail.
+
+We decide to go back **upstairs** and look for the power source to the barrier. We hop up the nearest stairs. This floor feels spookier than the ground floor… On the floor are reflections of chandeliers, with no chandeliers above! How mysterious. Sevaris steals a candle, arguing it's ever-burning, a perfect light source! Cormul talks shit because he is a **wizard** and can cast Light at will. We find a candle-lit library, and start browsing the books, God grumbles. It's mostly fiction books. Next to the library is a small stone room, lit by a **red brazier**, suspiciously empty. Sevaris casts Ray of Frost to extinguish it, does not work.
+
+Cormul and me search the small room. He finds nothing. The **floor** by the brazier looks a little different from the rest. Sevaris is looking for magic shullbit. The flame is definitely magic, but beyond that, he is stumped. Cormul grabs a random book and chucks it into the brazier. The light goes from flickering to steady, somewhat misty. Sevaris asks what was in the book Cormul burnt. He doesn't know, and gets another book. No further change… Krozzot goes to throw a **candle** into the brazier, but nothing happens. The boys burn a number of things. The brazier burns them VERY efficiently, not even charred pieces are left.
+
+Cormul steps back, gets a good running start, and jumps into the fire. Sevaris readies to cast **Create Water** and takes out a healing potion. Predictably, Cormul catches on fire. He is not feeling too good about that and has a minor freakout. As he screams, Sevaris generously waters him and feeds him the healing potion. Cormul stumbles out. ~~Mr Quain is farming Hero points~~. The brazier dims, though the flame remains steady. Krozzot suggests **more water**. We do a little bit of fat-shaming on the Halfling.
+
+Sevaris pulls out a flask of **holy water** and dumps it on the brazier. Wobble tries to catch some drops, looks like he got a taste for it in the previous dungeon. Well Wobble has a taste for most things. On contact with holy water, the red fire goes out **instantly**. Hmmm. Cormul hides in a corner to change out of his burnt clothes because he won't be seen in public with charred clothing. "Professionals have standards!"
+
+As we get through the corridor we had come from, we hear some mumbling off to the right. **Ghosties**?! We call out. The mumbling stops. "Racist ghost," Krozzot mutters. After some time, we hear the mumbling again, surrounding us. We pass by a room, and glimpse a blue flash. "Must have been the wind," Cormul says. "Clearly lightning," Krozzot says. I take out my **lantern**, and scratch Smula's ears with the other hand. Emotional support. Sevaris is zooming about, opening doors. Cormul threatens to take away his sugar and caffeine.
+
+We come to a room that contains… a **coffin**! In a closet is a fine tailored suit. There is **blood** on the floor. We hear voices again, from all directions, almost angry? "More has come to join us," they say. Krozzot says fondly, "That reminds me of home." He opens the coffin. Smula squeaks something that sounds like "vampoor". Inside is a sword. Sevaris grabs the candle on the… nightstand… next to the coffin. And drips wax onto the sword. Only afterwards does he cast again, **Detect Magic**. The sword is magical. Cormul gets excited at the thought of selling it. Maybe it's cursed? Not a chance, right?
+
+Cormul asks how the sword died. Old age or cancer are his first guesses. We try to talk Sevaris out of burning the coffin, and the rug, and the entire house that is Cormul's retirement home! We fail, so Cormul stomps out the flame and grabs the **sword**. Sevaris leaves that room and begins to squeak, "monsters outside!!" I go check. Ghosties! We roll **inish**'. I roll like concentrated essence of ass.
+
+The closest Ghost does a **Weeping Moan**, which Mr Chosen refuses to voice, despite Quain's express request, "Moan for me, Chosen." I get spooked (**frightened**), Smula is unfazed. Cormul moans back at the ghost to assert dominance, but it just sounds horny. Which arguably is more frightening. Encouraged by Cormul's **Guidance**, Wobble bites the Ghost and it disappears, leaving a suspicious blood splatter. Krozzot stares at the Ghost to find out their AC, I mean, **Recall Knowledge**. He chucks his boomerang Chakri at 'em.
+
+Another spooky moan! Cormul and Wobble are frightened. I pass, but I was already plenty spooked. I drop my lantern, draw my bow, **Hunt Prey**, and fire! Natural 1. The table erupts into giggles as I sit and stare at the die. You can't make this shit up. Aight boys it's been a fun game, good night now, see you tomorrow for raid. We get feared again. Sevaris fires (zaps?) an **Electric Arc**, destroys a Ghost, it disappears without leaving a puddle of blood! Our immersion is saved.
+
+These Ghosts are moaning mad shit for someone in Wobble range. Cormul uses **Demoralize** and moans at the nearest Ghost. Rolls a crit and asserts dominance. He gets a Hero point for moaning, terrifies the Ghost, then Wobble rolls a crit and tears into the Ghost. The thing survives with 1 HP. Krozzot proceeds to, _checks notes_, ROLL A CRIT. He annihilates the Ghost that still bore a big bite mark, Wobble-shaped.
+
+I shoot at the Ghost. Hit! **Precision** damage! The Ghost takes no damage… Mr Quain laughs his bum off. I am bamboozled. Sevaris chucks a Ray of Frost. Cormul shouts at Wobble to motivate him. It's very efficient! Wobble crits again and deletes the Ghost. Krozzot figures out that a Ghost… is immune to Death! REALLY NOW. He boomerangs the last Ghost. I step up, fuming. The bow didn't work so I draw my sword and swing at it. Hit! **Precision** Damage! The Ghost takes 1 damage. **Seriously now**?!
+
+The last Ghost whacks Cormul, something fierce. Sevaris yeets a **Telekinetic Projectile**, misses. Cormul sentences the Ghost to Oblivion by Wobble. Wobble obliges, converts the creature to past tense.
+
+Cormul **heals** himself, critical success. Quain explains that undead are immune to Precision Damage. I am grumpy. Sevaris is burning down the place. "Can't we loot it first at least?!" screams Cormul, trying to put out the coffin with a rug. It's another coffin in a different room. Cormul puts out the fire and opens the coffin, which is now charred. He is chanting a prayer for loot. In the room next door, we find two fine **dresses**. In the cupboards, make-up and brushes, sewing supplies, wool and thread. Cormul grabs the beauty products. Krozzot suggests using them on Wobble. Sevaris is zooming to the next room. Cormul smells the air for burning and char, nothing yet.
+
+More books in the adjacent bedroom. Sevaris stole a sewing kit, so he grabs the book on sewing techniques. Across the corridor, another coffin room with a sword inside. In the cupboards, another suit. Krozzot grabs the sword as sevaris threateningly casts **Produce Flame**, and chucks it on the coffin. Cormul leaps to extinguish it.
+
+We proceed along the eastward corridor, and find **servants' quarters**. We leave Sevaris alone in a room with a lit candle. Big mistake. Let's never do this again. We walk south, to a large storage room with covered furniture. Adjacent is one small room with exactly one brazier. The castle seems symmetrical. Sevaris goes to the brazier, zooms back out, we investigate the storage room. Just like on the other side, a spiral staircase leads down to the ground floor.
+
+We go down, all the way to the basement. Every light has gone out…
+
+**Points of note**:
+
+- Cormul insists the castle belongs to him. Do you see any owner here? And IF we murdered him, where is the corpse, eh? Must have been some other murder hobos.
+    
+- Sevaris has severe pyromaniac tendencies. It's a lot more than "tendencies" at this point, he gets the irrepressible urge to burn most things.
+    
+- Krozzot approves of occult bullshit, of course.
+
+We level up to 3!
