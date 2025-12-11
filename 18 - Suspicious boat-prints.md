@@ -1,0 +1,46 @@
+
+Krozzot is telling us about the results of his botanical research; in simple terms, the crystal lotus is "big money". The orc is telling about the **Big Fucking Crystals** being used in rituals to reinforce **Ley Lines**. I don't know a flying thing about Ley Lines, or magic. What a mood. Turns out the Small Fucking Crystal would have grown big if we'd just waited… welp.
+
+"Fucking healers, man." - the DM.
+
+The crystals may reappear in the craters and then grow, but Krozzot is less sure about that, the research isn't too clear. Cormul theorises **Axe** may have known about this and was looking for crystals in the craters. But he said he was visiting a friend? "You know Nori, sometimes people say things that aren't true, it's called lying," Cormul says. Hey it's not lying if you're just bending the truth a little bit…
+
+We stay at home and watch the **builders** work on the barn, actively preventing them just wandering into the dungeon. ~~Sitting in garden chairs and getting a tan~~. Wobble is the biggest deterrent, as the hangriest radish in the world. Balloonaris is chilling in the campfire as a hot air balloon, this is his natural habitat.
+
+The next day is spent competing in horrible puns and discussing an alchemy shop for Sevaris to sell his brews. Krozzot says we need to grow the plant first, as it is the main ingredient for the potions. We try to convince Sevaris to hurl a meteor onto our land so it makes a crater where a crystal may grow. "There is no crater source of money," Cormul claims and we all groan. Sevaris can't cast **Meteor Swarm** just yet so we suggest just a **Fireball**. Sounds really clever until we realise… the crystal craters are really, really big. We're not making a tenth of that with a Fireball.
+
+To which the DM says we are not getting any more levels in this campaign now. Sevaris then wants to go to the mage academy or something to learn a meteor spell. "But Akademi isn't playing with us." We discuss Sevaris' dirty money earned by scamming God.
+
+Cormul grabs Krozzot and quietly explains the **cult situation**, and why people reacted so strongly to Sevaris flying around holding fire. "Sounds like it's not my cult," Krozzot says. I start distracting Sevaris by talking about plants so he doesn't eavesdrop on the other two but I space out, roll a nat 1 on **Deception**, and go in circles all on my own. Sevaris sees right through the bullshit and flies off. He hears the other two talking about a cult, then returns to check on me as I'm stuck babbling about mushrooms (don't eat the purple ones).
+
+Sevaris says to Krozzot "I'm glad you're opening up about your past life in the cult." The orc replies "What do you mean past life? It was miserable before the cult!". Sevaris suggests making a fire cult, and this is exactly what Cormul and me were trying to avoid. Krozzot talks about the cult he is still part of, a cult of **Dispater**. "The cult is about him, but they let me worship his wife." We lose our shit at these words, can she fix him?!
+
+"Believe in yourself, and don't tell me what you are doing. In fact never talk religion to me again!" Cormul to Krozzot. The orc reluctantly admits to Sevaris, there is already a fire cult in Kratin, **Flame**. As we feared… Sevaris wants to join. Krozzot says Flame wants to change the **Ice Fields** into Fire Fields and that sounds pretty stupid to him. Sevaris says that sounds awesome, Fire Fields would be WARM! Krozzot brings up the water level issues, and lack of water if it gets replaced with fire? Sevaris is not receptive.
+
+"Sevaris do you have any siblings? A twin maybe? A _good_ twin?" - Cormul.
+
+Krozzot finally changes Sevaris' mind by saying if the environment changes, the crazy valuable crystals may stop growing. Sevaris proudly says the cult needs to die; the only thing more important in life than fire is gold. He is now hell-bent (hehe) on burning **Flame** with righteous fire and suspects they may be trying to use the crystals to help their stupid plans. Krozzot thinks on it and… well that's not really his field of study, it could go either way really.
+
+Sevaris is hoping to be contacted by the cult once the bounty on his head is removed. We'll have to go check the bounty board in his stead… just to be sure. Our barn is built, our property is being fenced, we decide to go towards the dungeon in the Ice Fields. Krozzot asks me to keep track of time in my notes so we can estimate a **timeframe** for the crystals to re-grow.
+
+Let's see… we found the first crystal **five days ago**. We still have close to 2 months. We ask our friendly fish-man to watch over our barn, dungeon, and general property while we are gone. As we enter the dungeon where we stayed, he is walking around the water. The soles of his feet are under the surface of the water, but no more… he is beginning to figure out the solid water it seemed. I awkwardly ask the Sahagin for his name, we never even asked. He is called **Mur**.
+
+Mur has not figured out why the water is solid but he has managed to get past it a little bit. Eventually he can get submerged and make a cozy home in there! Good luck buddy. Mur agrees to keep an eye on the entrance. Sevaris requests the formula on his **teleportation circle** again. Cormul asks Mur to kill any trespassers, he says okay without questioning. I object, Sevaris asks him to Mur-der people, I throw arrowheads at the balloon.
+
+We ask Mur if we should bring him anything from the outside but he declines. The Sahagin suggests establishing a **telepathic link** with one of us, Cormul pushes me forward so I volunteer. Mur cups his hands and conjures up a **clam**, touches it to my fur and pushes it into me as a magic circle surrounds his hands. It leaves a white clam-shaped marking into my fur. How fashionable! I test it and… the telepathy works!
+
+"To the rice fields!" Krozzot says and we get ready to leave Kratin. We check the **bounty boards** and don't find Sevaris on there, so our balloon reverts to fairy form. There is a 50g reward for information about cultists though… any kind of information. Cormul wants to fabricate cultist corpses to turn in for the money. Sevaris wants to infiltrate the cult for information.
+
+With my **Tracker's Goggles**, I easily find the way to the Ice Fields. We get the old debuff from outdated memes and take a little detour to check on our boat. We arrive by evening, ready to sleep on the boat for old times' sake. Problem… **there is no boat**. I try to find clues as to where the boat went, whether it drifted away or sank. Maybe it left boat-prints, Cormul suggests. I find our mooring rope, cut. There are tracks of the boat being dragged onto land… who steals a boat by dragging it on land instead of sailing away?!
+
+I try to sniff the tracks… wow, that smells disgusting. Tony is that you? It sure smells like **undead**… wait… did zombies eat our pirate ship?! I follow the smell for about an hour, it's getting dark but I stay on track. We get into pillar-like **rock formations** before I lose the trail. I encourage Smula to give it a go, but she does not pick the trail back up. What an unlucky rat… Krozzot tries as well but he does not have the whiskers for tracking. Cormul tries with the power of Guidance but it's also a nope. We go in circles by the light of a shining Wobble.
+
+Sevaris casts **Cozy Cabin** and **Alarm** so we can camp in maximum comfort. We have a quiet night and as we leave the cabin we see a wooden structure on the horizon. Is it boat-shaped?! We need to investigate. After a quick breakfast we walk over to the structure. It sits atop one of the rocky spires so we first need to climb up, thankfully there is a path leading up and we don't need to bust out the ropes and pitons (which I don't think we have anyways).
+
+A chunk of the mountainside has been carved up, making a nice clearing. Seven boats are resting on logs, turned upside down. It smells a lot like undead in here but we're not seeing any. Sevaris casts **Detect Magic** and tries to pick up stuff. The range is real short so he decides instead to slap my fluffy bum and cast **Invisibility** on me. I sneak down the path and peek under the boats… undead corpses glued to the improvised roof of the upturned boats. I estimate minimum 50-60 undead clustered in there…
+
+I report my findings and receive from Sevaris 8 **Alchemist's Fires** and planting them under the boats in preparation for some real fireworks. I hurry back and Sevaris casts… **Fireball**! There is a chain of explosions, a lot of undead moaning, a voice exclaiming in Taldane "Yo what the fu—" and the dust begins to settle, slowly. We wait for the burning to subside then go loot the ashes.
+
+We find 50 gold and divide it amongst ourselves. Nothing else so we go back down to the Ice Fields. Before going into the dungeon we take a rest and Sevaris pops up the Cozy Cabin again. As we scout for the dungeon entrance, we spot an ice pillar we can't see through and assume that's the dungeon!
+
+Okay see you next week boys!
