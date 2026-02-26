@@ -33,7 +33,7 @@ We smell **delicious food** coming from the south. Wobble is dashing towards the
 
 We go into the dining hall next door to meet the cook's friends. There are a lot of skeletons here and two decidedly un-skeleton people who look like **mages**. They say they are from Port Leon and were just exploring the dungeon, but decided to stay because "it's pretty safe here except for the locked-up demons, besides who would be stupid enough to jump into a whirlpool right?" We have a good laugh, I ask if we can share their meal.
 
-Sevaris and Cormul are spouting a lot of nonsense so I ask the mages if she can maybe un-curse them? The lady says she can, more nonsense follows and Krozzot and me consider looking for a new party. She says she is a priestess of **Abadar** in Port Leon. Oh, Krozzot is also religiously enclined, maybe they'll get along!
+Sevaris and Cormul are spouting a lot of nonsense so I ask the mages if they can maybe un-curse them? The lady says she can, more nonsense follows and Krozzot and me consider looking for a new party. She says she is a priestess of **Abadar** in Port Leon. Oh, Krozzot is also religiously enclined, maybe they'll get along!
 
 Sevaris takes off his clothes to be "inspected" by the pretty lady. She says that is wholly unnecessary and he really doesn't need to show her his "small treasure". Sevaris swears it gets bigger, but turns away and bends over to pick up his robe. I turn away in a hurry and cry softly in Big Smula's fur. Krozzot and me beg the priestess to **un-curse** our companions. She starts praying and taps Sevaris' shoulder, then says there is nothing wrong with him. The fairy goes dead silent, his face becomes serious and he silently floats back.
 
