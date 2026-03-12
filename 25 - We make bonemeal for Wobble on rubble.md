@@ -1,0 +1,42 @@
+
+We begin by walking the wrong way, led by Krozzot. I'm just along for the ride. We course correct and walk the correct way, I hand everyone some cookies and we make camp at nightfall. Sevaris threatens to cast **Create Food** so I forage for plants to go with the rest of our giant snake. The wizard is munching on his legally distinct Archon loaf. The rest of us eat spiced snake stew with wild carrots and herbs, and Wobble takes care of the leftovers, accidentally eating one of the bowls too.
+
+"Alright Krozzot, lead us to better tomorrows filled with happy undead children." - Cormul
+
+We walk the whole day, heading straight **west**. I forage for food again and on top of perfectly ripe amaranthe and fruit, some squash, and even mushrooms, we find a whole buffalo. Killed by a snake, and it stomped the snake to death in its final moments. I salvage a large amount of meat, it's buffalo steaks tonight boys.
+
+We get sidetracked and talk about dinosaurs. The Eromangasaurus is real, and it was not found on Epstein island but in Australia.
+
+"What if T-Rex but midget? So cooool," says Quain, trash talking Chosen's beloved raptor.
+
+I cook excellently seared steaks, roast vegetables in hot coals, and fry up some eggs in the meat fat. Sevaris enquires as to how in the world I got eggs, which causes us to get sidetracked on who come first, the chicken or the egg. I show off the **Box of Unspoiling** and offer to make pancakes. We feed ourselves very well, Wobble happily crunches on his bonemeal, which is just buffalo bones and leftovers. He's a growing boy. I feed him a cookie and nearly lose my hand, gauntlet included.
+
+We spend an uneventful night, and I wake up a little earlier in the morning to make pancakes with cooked fruit in a quick jam. We travel a little way south to a cliff face and a ladder leading 100 feet up. Radishes aren't known for their climbing skills, so Cormul unsummons Wobble, he burrows and returns to the grass, and we go up the ladder. There is a small **cabin** built on the ledge, jutting out of the cliffside, with a single steel door. Cormul re-grows Wobble, then knocks and calls out.
+
+Stomp, stomp… the door opens to reveal bare legs, then they bend as the guy crouches down, we are face to face with a plague doctor mask and a confused person who says "Hello, how did you find me?" Cormul tells about **Tony**, the man is confused so the Halfling pulls out the undead boy's remains. "Ah, yeah it makes more sense why you're coming to me," the necromancer says.
+
+The necromancer is called **Rom**. He is wearing minimalist smallclothes, short boots, thick gloves, and the mask, all in black leather. NOTHING ELSE. He looks human but is huge, and I am looking respectfully at his muscles, drooling a little bit. Cormul anxiously asks if Rom can bring back his son. Rom takes the remains in his "humongous hand", puts them on the huge table, grabs some books. He should be able to get him back, but he needs to do it in his **workplace**. The workplace can't be used at the moment, as there was a little mess-up last time and some of his boys are walking down there.
+
+"You also have children?" Cormul asks. Rom isn't sure of the definition, but kind of agrees. He says he created them with a **ritual** (Krozzot wakes up), and some clean-up is required. I say this sounds like a good workout, he agrees, we flex together.
+
+Rom leads us to the basement and warns us about a lot of skeletons. We are free to smash them to pieces, he can make more. I stretch, limber up, lift my frying pan. Let's do this, boys. We open another steel door and descend into a cavern, cross shallow water, climb up on the other side, and spot some **skelly boys**, one spooky boy, and one large boy who shows hostility. Workout time, let's roll initiative! 5, 2, 2, 1. Oh… dear.
+
+A Sulfur Skeleton walks up to me. "Woah woah woah did you just walk past Wobble? Get Wobble'd idiot." The skelly tries to hit me, critical miss. "Who cares about feelings, it's Wobbling time," says Cormul. Wobble ate a lot and is slow, misses the first and last hit but gets the second one. Quain grumbles about the skeletons' stats and Chosen replies with "skill issue".
+
+Skeletal Hulk moves in and hits Cormul! Critical hit! I use my reaction on **Intercept Strike** and fling myself into harm's way, taking heavy damage despite my resistance. I'm flung 10 feet back. Woooo flying rat! Krozzot steps up and thinks on the small skeleton. It's a hit, and the sulfurous boy isn't looking too well. Krozzot begins speaking in tongues… **Disturbing Knowledge**! He rolls a nat 1 and frightens himself, good job Orc boy!
+
+Sevaris casts **Radiant Beam** to hit the big boy and the spooky mage-looking boy at the back. The hulk dodges and takes minor damage, the spooky boy fails the save and takes heavy damage. My turn! I dust myself off and shout at the hulk "We'll make you into bonemeal for Wobble!" and **Taunt** him. Then I walk up to him, heft my trusty frying pan, and whack him in the kneecap.
+
+The two Sulfur Skeletons are trying to roast Wobble, literally. Cormul is looking a bit cooked… The big guy whacks Krozzot and Cormul! The Halfling is really not looking good now… Then the hulk hits me, but I use **Reactive Shield** and block the attack. Krozzot chucks his chakram at the first Sulfur boy, killing it. Then he uses Battle Medicine on Cormul, gives him the stab… nat 1. Uh-oh. That's a reroll. He gives me the stab for 1 damage, and then thanks to the bonus from Robust Health, I heal… 41. Almost back to full. EZ.
+
+The Skeletal Mage in the back does a **Divine Lance**! And it's on Cormul again, oof. Sevaris has that glint in his eye and his tiny hands spark up… Oh dear. Fireball! The Sulfur skelly saves, and the hulk critically saves. Fuuuuuuuck. After which he rolls absolute ass on the damage. Welp, it's up to me then, I whack the hulk with the frying pan and hit once, but roll good. Clooooonk! The Sulfur moves up to me, Wobble snaps at him but misses. The skelly boy hits me with pinpoint accurracy. I don't even try to block it, my shield won't do jack shit here.
+
+Wobble is back with a critical! He Wobbliterates the mage, then talks shit at the hulk with **Demoralize**. Looks like the big skelly doesn't speak radish… Cormul then runs away and flips off the hulk. Krozzot and me get whacked… no response. Should have raised my shield last turn instead of whacking away, oops. Krozzot stabs himself, feels a lot better, then attacks! Critical miss. Uh… guys we really need to roll better?!
+
+**Fireball**! Both skellies fail the save! And Novator rolls like ASS. I whack the big skelly, but a frying pan is not a strong weapon. And raise my shield! Get past that, bitch. I get hit by the sulfur boy but thanks to Cormul's **Shared Luck**, I get to reroll the save against burning, and pass it with a nat 20! No Mr Chosen the Foundry is not broken. This is just what happens when my character isn't cursed. Cormul attempts to Demoralize the hulk, but he doesn't speak Taldane. "Wobble, just kill him." Wobble misses.
+
+The Hulk attacks! Krozzot is hit but tanks it like a champ, while I block both hits. Krozzot devises a very good stratagem with the timely help of a hero point, and cooks up a crit. We all get a bonus from the **Golden Legion Epaulet**. Big hit! And another hit! The splash damage is getting me real bad… But hey the only HP that really matters is the last one.
+
+Sevaris casts **Crashing Wave** and we realise we are all bad at math. The hulk dies from splash damage! I whack the last guy with the frying pan, but they're immune to fire… Wobble, it's all yours. I run away and hide behind my shield, I may be brave but 7 HP really isn't a lot. Wobble gets it, transferring the damage to Cormul, and he's looking really rough right now, even after the Wooden Double. **Demoralize**! The skelly still doesn't speak Taldane… Get Wobble'd. The skeleton is still standing, barely, with the radish hanging onto his femur just gnawing away.
+
+Krozzot kills the last skeleton! Combat is over and I slump against a big statue. This… this is gonna suck tomorrow. Everything hurts. Sevaris flies over and pours an entire healing potion over me. Thanks fairy-boy.
