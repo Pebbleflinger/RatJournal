@@ -3,7 +3,7 @@ We begin by walking the wrong way, led by Krozzot. I'm just along for the ride. 
 
 "Alright Krozzot, lead us to better tomorrows filled with happy undead children." - Cormul
 
-We walk the whole day, heading straight **west**. I forage for food again and on top of perfectly ripe amaranthe and fruit, some squash, and even mushrooms, we find a whole buffalo. Killed by a snake, and it stomped the snake to death in its final moments. I salvage a large amount of meat, it's buffalo steaks tonight boys.
+We walk the whole day, heading straight **west**. I forage for food again and on top of perfectly ripe amaranth and fruit, some squash, and even mushrooms, we find a whole buffalo. Killed by a snake, and it stomped the snake to death in its final moments. I salvage a large amount of meat, it's buffalo steaks tonight boys.
 
 We get sidetracked and talk about dinosaurs. The Eromangasaurus is real, and it was not found on Epstein island but in Australia.
 
