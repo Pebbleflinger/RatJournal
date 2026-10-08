@@ -45,7 +45,7 @@ I distribute Golem-free rock candy to everyone. Krozzot accepts it and winks at 
 
 We go walk up the stairs at the end of the hall… and find ourselves walking down the other stairs. Same with the corridors. Cormul thinks of ways to profit off it. The dungeon isn't closing…
 
-"We are experts in checking." - Ruka, making Chosen depressed
+"We are experts in Czeching." - Ruka, making Chosen depressed
 
 SEVARIS CAN CAST **TELEPORT** NOW. He resists the temptation to teleport us all into a volcano and kill us all. Barely. We squabble about the value of gold, and whether we should live off-grid. I'm worried I can never forage enough food to feed Wobble, he is a bottomless well. Wobble is trying to munch on a broken Golem.
 
